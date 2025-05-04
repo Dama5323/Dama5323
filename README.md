@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on open-source projects that improve healthcare access and efficiency  
 - 📫 How to reach me: [deenyashke@gmail.com](mailto:deenyashke@gmail.com) | [LinkedIn](https://www.linkedin.com/in/dama5323)  
 - 😄 Pronouns: She/Her  
-- ⚡ Fun fact: I’m a former paramedic who journals daily and loves global step challenges!
+- ⚡ Fun fact: I’m a former paramedic who journals daily and loves global step challenges
 
 
 <!---
